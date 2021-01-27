@@ -16,4 +16,4 @@ Vive a Roma
 Professione: Modella 
 
 
-Interessi: Vorrebbe diventare una giovane modella della linea intimo di Intimissimi
+Interessi: Vorrebbe diventare una giovane modella nella linea intimo
