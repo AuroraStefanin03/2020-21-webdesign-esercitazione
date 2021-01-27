@@ -1,9 +1,6 @@
 # 2020-21-webdesign-esercitazione
 # Personas
 
-PERSONA 1
-
-
 Nome: Francesca
 
 
